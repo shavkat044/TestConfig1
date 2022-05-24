@@ -1,0 +1,1 @@
+O`rnatasiz unaqa qilasiz bunaqa qilas
