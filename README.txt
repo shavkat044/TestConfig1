@@ -1,1 +1,1 @@
-O`rnatasiz unaqa qilasiz bunaqa qilas
+O`rnatasiz unaqa qilasiz bunaqa qilas sad asda s
